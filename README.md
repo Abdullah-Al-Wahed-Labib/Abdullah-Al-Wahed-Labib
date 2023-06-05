@@ -41,3 +41,5 @@ Step into the extraordinary world of **Abdullah Al Wahed**, a prodigious trailbl
 🐈‍⬛ **GitHub =** [Visit Profile](https://github.com/Abdullah-Al-Wahed-Labib)
 
 🐈 **LeetCode =** [Visit Profile](https://leetcode.com/Abdullah-Al-Wahed/)
+
+👾 **Discord =** [Enter Server](https://discord.gg/6gwRqY7WAW)

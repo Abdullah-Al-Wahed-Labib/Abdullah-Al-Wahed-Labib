@@ -1,4 +1,4 @@
-![Standard Banner (Personal) Cropped](https://github.com/Abdullah-Al-Wahed-Labib/Abdullah-Al-Wahed-Labib/assets/66773145/45c2a2fb-7711-482d-9f19-df0568e1901a)
+![Standard Banner (Personal) Github Cropped](https://github.com/Abdullah-Al-Wahed-Labib/Abdullah-Al-Wahed-Labib/assets/66773145/6bdfc8c9-551c-4d19-85ef-cb1fc4b41ea6)
 # 🌟 Abdullah Al Wahed :: Problem-Solving Extraordinaire 🌟
 
 ### 🔭 Embarking on Cosmic Explorations || Coding Maestro || Purveyor of Profound Knowledge 🚀

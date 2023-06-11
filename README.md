@@ -44,7 +44,7 @@ Step into the extraordinary world of **Abdullah Al Wahed**, a prodigious trailbl
 
 
 
-## 📞 Contact Information & Details
+## 📱Social Media Links, Contact Information & Details ☎
 
 📧 **Email =  wahed.personal@gmail.com**
 

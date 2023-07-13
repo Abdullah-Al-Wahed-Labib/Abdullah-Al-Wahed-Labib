@@ -60,4 +60,4 @@ Step into the extraordinary world of **Abdullah Al Wahed**, a prodigious trailbl
 
 ▶️ **YouTube Channel =** [Subscribe Channel](https://www.youtube.com/@abdullah-al-wahed/featured)
 
-🛠️ **Timus Author ID =** 362130BY
+🛠️ **Timus Author/Judge ID =** 362130BY

@@ -1,4 +1,3 @@
-![CW Wahed Banner compressed](https://github.com/Abdullah-Al-Wahed-Labib/Abdullah-Al-Wahed-Labib/assets/66773145/d6f3908c-def1-4ffe-8f02-d974fae5c01a)
 # 🌟 Abdullah Al Wahed :: Problem-Solving Extraordinaire 🌟
 
 ### 🔭 Embarking on Cosmic Explorations || Coding Maestro || Purveyor of Profound Knowledge 🚀

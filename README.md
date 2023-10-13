@@ -47,6 +47,8 @@ Step into the extraordinary world of **Abdullah Al Wahed**, a prodigious trailbl
 
 📧 **Email =  wahed.personal@gmail.com**
 
+✔ **Facebook =** [Visit Profile](https://www.facebook.com/GX.WAHED/)
+
 🐦 **Twitter =** [Visit Profile](https://twitter.com/Wahed7043)
 
 🐈‍⬛ **GitHub =** [Visit Profile](https://github.com/Abdullah-Al-Wahed-Labib)

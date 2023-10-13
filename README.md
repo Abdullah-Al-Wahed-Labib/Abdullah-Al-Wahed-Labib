@@ -37,9 +37,9 @@ Step into the extraordinary world of **Abdullah Al Wahed**, a prodigious trailbl
 ‎
 
 
-### ***Abdullah Al Wahed {Labib}*** 
-###### The CoderByte Mavericks :: CEO 
-###### Dhaka, Bangladesh
+***Abdullah Al Wahed {Labib}*** 
+The CoderByte Mavericks :: CEO 
+Dhaka, Bangladesh
 
 
 

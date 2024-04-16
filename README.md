@@ -61,6 +61,6 @@ Dhaka, Bangladesh
 
 ▶️ **YouTube Channel =** [Subscribe Channel](https://www.youtube.com/@abdullah-al-wahed/featured)
 
-🛠️ **Timus Author/Judge ID =** 362130BY
+🛠️ **Timus Author/Judge ID =** 379359SK
 
 🛠️ **Beecrowd ID =** [Visit Profile](https://www.beecrowd.com.br/judge/en/profile/459603)

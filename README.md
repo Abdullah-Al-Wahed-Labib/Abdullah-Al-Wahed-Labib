@@ -57,7 +57,7 @@ Dhaka, Bangladesh
 
 👾 **Discord =** [Enter Server](https://discord.gg/6gwRqY7WAW)
 
-💻 **Stack Overflow =** [Visit Profile](https://stackoverflow.com/users/21896208/abdullah-al-wahed?tab=profile)
+💻 **Stack Overflow =** [Visit Profile](https://stackoverflow.com/users/17715166/abdullah-al-wahed)
 
 ▶️ **YouTube Channel =** [Subscribe Channel](https://www.youtube.com/@abdullah-al-wahed/featured)
 
